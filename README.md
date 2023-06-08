@@ -21,8 +21,11 @@
 
 永久地址发布页
 
-[https://bitbucket.org/fabuye/madouqu/](https://bitbucket.org/fabuye/madouqu/)
+[(https://bitbucket.org/aiyaya123/dz123/src/master/)](https://bitbucket.org/aiyaya123/dz123/src/master/)
 
 备用地址发布页
 
-[https://github.com/madouqufabuye/madouqu/](https://github.com/madouqufabuye/madouqu/)
+[(https://github.com/hezilong530/1024/)/](https://github.com/hezilong530/1024/)
+
+发送邮件自动找回地址：
+发送任意内容至：hezilong530@gmail.com  即可获取最新地址，请牢记邮箱地址！
