@@ -7,16 +7,16 @@
 
 请选择最新地址
 
-[http://www.lz1024.cc](http://www.lz1024.cc)
+[http://www.aiya1.cc](http://www.aiya1.cc)
 
 
-[http://www.lz1024.cc](http://www.lz1024.cc)
+[http://www.aiya1.cc](http://www.aiya1.cc))
 
 
-[http://www.lz1024.cc](http://www.lz1024.cc)
+[http://www.aiya1.cc](http://www.aiya1.cc))
 
 
-[http://www.lz1024.cc](http://www.lz1024.cc)
+[http://www.aiya1.cc](http://www.aiya1.cc))
 
 
 永久地址发布页
@@ -25,7 +25,7 @@
 
 备用地址发布页
 
-[(https://github.com/hezilong530/1024/)/](https://github.com/hezilong530/1024/)
+[(https://github.com/hezilong530/1024/)](https://github.com/hezilong530/1024/)
 
 发送邮件自动找回地址：
 发送任意内容至：hezilong530@gmail.com  即可获取最新地址，请牢记邮箱地址！
