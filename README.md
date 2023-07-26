@@ -7,16 +7,16 @@
 
 请选择最新地址
 
-[http://www.aiya1.cc](http://www.aiya1.cc)
+[http://www.aydy.top](http://www.aydy.top)
 
 
-[http://www.aiya1.cc](http://www.aiya1.cc)
+[http://www.aydy.top](http://www.aydy.top)
 
 
-[http://www.aiya1.cc](http://www.aiya1.cc)
+[http://www.aydy.top](http://www.aydy.top)
 
 
-[http://www.aiya1.cc](http://www.aiya1.cc)
+[http://www.aydy.top](http://www.aiya1.cc)
 
 
 永久地址发布页
